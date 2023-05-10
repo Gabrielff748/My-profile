@@ -15,6 +15,5 @@
  <br>
  
 
-  ![Snake animation](https://github.com/Drayken/Drayken/blob/output/github-contribution-grid-snake.svg)
-
+ 
 </div>

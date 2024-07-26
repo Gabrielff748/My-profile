@@ -7,7 +7,7 @@
 
 - 📫 Entre em contado: **ffgabriel748@gmail.com**
 
-- ⚡ Fatos pessoais **Seu uma pessoa bem ativa em redes sociais, sou esforçado e programo por paixão.**
+- ⚡ Fatos pessoais **Sou uma pessoa bem ativa em redes sociais, sou esforçado e programo por paixão.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
